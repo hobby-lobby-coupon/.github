@@ -21,3 +21,13 @@ Here are some of the latest and most popular hobby lobby offers you can use inst
 | upto 75% off | Clearance Section | Save big on Seasonal And discintinued Itesms, Direct offer access now |
 | 40% off    | Spring Shop | Latest deals on garden items, seasonal decor, and wall art, Instore offer Access now |
 | Free Shipping | Online orders | VAild on orders above $50 (Limited-time offer) |
+
+----
+
+## 5 easy ways to save money at hobby lobby 
+
+Even without a weekly coupon, you can still enjoy huge savings. Try these smart ways to shop and save:
+
+1. Check the weekly ads, every sunday, hobby lobby updates are avaliable, with its weekly ds and new discounts. You can now check it online or Order now in the app.
+2.  Shop the Clearance Section: In-store and online, you will find red tragged clearance items with upto 90% off.
+3.  Download the hobby lobby app, with app you can get instant access to deals weekly ads, and store locations. 
