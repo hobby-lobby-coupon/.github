@@ -3,7 +3,6 @@
 hobby lobby coupon - latest deals, weekly discounts and how to save more on orders, find out how to save at hobby lobby without the
 old 40% coupons, check updated weekly ads, clearance sales, and easy saving tims on home decor.
 
------
 
 looking for hobby lobby coupon to save on crafts, and supplies, or home decor? while hobby lobby no longer offers the 40$ off coupon, 
 you can still enjoy big savings through weekly sales, clearance events, and special events. you can still enjoy big savings through 
