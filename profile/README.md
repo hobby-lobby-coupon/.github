@@ -16,6 +16,12 @@ both online and in-store discounts.
 
 Here are some of the latest and most popular hobby lobby offers you can use instantly:
 
+| Discount    | Category |    Details  |
+| ----------- | --------- | ---------- |
+| 50% off     | Home Decor | Includes frames, mirrors, clocks and much more |
+| upto 75% off | Clearance Section | Save big on Seasonal And discintinued Itesms |
+| 40% off    | Spring Shop | Latest deals on garden items, seasonal decor, and wall art |
+| Free Shipping | Online orders | VAild on orders above $50 (Limited-time offer) |
 
 
 <!--
