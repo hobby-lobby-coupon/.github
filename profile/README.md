@@ -9,6 +9,9 @@ you can still enjoy big savings through weekly sales, clearance events, and spec
 weekly sales and clearance events and special deals. In this page you will learn exactly how to get discounts at hobby lobby every week
 both online and in-store discounts.
 
+![image](https://github.com/user-attachments/assets/966e1d0b-4a6d-4178-80a7-d9c14ff8ed75)
+
+
 -----
 
 ## Current Hobby Lobby Deals:
