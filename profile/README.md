@@ -18,9 +18,9 @@ Here are some of the latest and most popular hobby lobby offers you can use inst
 
 | Discount    | Category |    Details  |
 | ----------- | --------- | ---------- |
-| 50% off     | Home Decor | Includes frames, mirrors, clocks and much more |
-| upto 75% off | Clearance Section | Save big on Seasonal And discintinued Itesms |
-| 40% off    | Spring Shop | Latest deals on garden items, seasonal decor, and wall art |
+| 50% off     | Home Decor | Includes frames, mirrors, clocks and much more, coupon code direct offer |
+| upto 75% off | Clearance Section | Save big on Seasonal And discintinued Itesms, Direct offer access now |
+| 40% off    | Spring Shop | Latest deals on garden items, seasonal decor, and wall art, Instore offer Access now |
 | Free Shipping | Online orders | VAild on orders above $50 (Limited-time offer) |
 
 
