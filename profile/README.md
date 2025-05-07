@@ -30,4 +30,22 @@ Even without a weekly coupon, you can still enjoy huge savings. Try these smart 
 
 1. Check the weekly ads, every sunday, hobby lobby updates are avaliable, with its weekly ds and new discounts. You can now check it online or Order now in the app.
 2.  Shop the Clearance Section: In-store and online, you will find red tragged clearance items with upto 90% off.
-3.  Download the hobby lobby app, with app you can get instant access to deals weekly ads, and store locations. 
+3.  Download the hobby lobby app, with app you can get instant access to deals weekly ads, and store locations.
+4.  signup for Emails: Get notifications about exclusive offers, seasonal sales, and more details.
+5.  Price adjustment: if your item goes on sale with in 14 days, bring your recept to the store for best price adjustment.
+
+## Freqyently Asked questions:
+
+Q: Does hobby lobby still offer 40% off coupon?
+no, hobby lobby stopped their popular 40% off coupon in 2021 now you can get lower prices through regular weekly sales and  clearance deals.
+
+Q: Can I use more than one coupon at a time?
+no, Hobby lobby allows only one coupon per item. However, you can use different coupon for different items in one purchase. 
+
+Q: are there any special discounts for teachers or churches?
+Yes, there are some discounts about 10% discounts for schools, churches, and national charities when they pay with their organization's methord.
+
+Q: When do new deals go live?
+new sales start every sunday. That's the best time to check the app or website.
+
+
