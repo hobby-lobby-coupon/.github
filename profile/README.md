@@ -34,6 +34,8 @@ Even without a weekly coupon, you can still enjoy huge savings. Try these smart 
 4.  signup for Emails: Get notifications about exclusive offers, seasonal sales, and more details.
 5.  Price adjustment: if your item goes on sale with in 14 days, bring your recept to the store for best price adjustment.
 
+----
+
 ## Freqyently Asked questions:
 
 Q: Does hobby lobby still offer 40% off coupon?
@@ -48,4 +50,11 @@ Yes, there are some discounts about 10% discounts for schools, churches, and nat
 Q: When do new deals go live?
 new sales start every sunday. That's the best time to check the app or website.
 
+----
+
+## Final tip: combine sales with clearance for maximum savings:
+
+Want to get best deals? shop clearance items during weekly sales and you could save over 75%. Whether you are buing party supplies or art canvaces or seasonal decor, hobby lobby still offers great value even without a regular coupon.
+
+If you want to stay updated with the latest hobby lobby coupon updates and deals bookmark this page or download official hobby lobby app from google play store.
 
